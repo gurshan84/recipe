@@ -1,0 +1,7 @@
+Preheat oven to 350 degrees. Grease and lightly flour 2 or 3 round 9″ cake pans.
+Sift flour and salt together, set aside. In the bowl of a stand mixer, combine the butter and sugar. Mix until light and fluffy. Add the eggs one at a time. Mix well after each addition. Add the flour mixture to the bowl alternately with the buttermilk, beginning and ending with flour mixture. Blend in vanilla.
+In a small bowl, mix the 1 1/2 tbsp red food coloring and 1 tbsp cocoa powder until a paste forms. Add to the sugar and butter mixture. Mix well. In a small bowl or condiment cup, stir together the baking soda and cider vinegar. This will foam and should be put into the batter immediately after well mixed. After adding the foam mixture, blend on medium-high speed until batter is consistent.
+Spoon batter evenly into pans – batter will be very thick! Level top of batter with an offset spatula. Bake for 25-30 minutes, or until cake springs back when pressed in the center. Turn out on wire racks and cool completely.
+Cream cheese frosting
+In a large mixing bowl, beat the cream cheese, butter and vanilla together until smooth. With the mixer on low, gradually pour in the confectioners’ sugar. Increase the speed to high and beat until light and fluffy. If mixture is too thick, add a little milk to loosen it. If it is too thin, add additional powdered sugar or put in the refrigerator to firm up.
+*If carving cake and coating with crumbs, be sure to put the crumbs on when the icing is fresh and still sticky.
